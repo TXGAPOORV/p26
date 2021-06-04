@@ -1,0 +1,1 @@
+cover the cake base with cream mixed with sugar and also add egg
